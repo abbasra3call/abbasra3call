@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning the live my life
 - 💞️ I’m looking to collaborate to myself
 - 📫 You can reach me on any vitrual network's
-- 😄 Pronouns: ...
+
 
 
 <!---
